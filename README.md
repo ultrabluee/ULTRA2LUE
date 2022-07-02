@@ -1,4 +1,2 @@
 # ULTRA2LUE
-the big sequel to the famous ULTRABLUE. yes very real and very nice
-its not done yet. coming late or mid july.
-see you soon.
+The sequel to ULTRABLUE and my magnum opus. This time around Tony has one critter on his priority, BLUE THE DEWOTT. Can you face these new foes and enviroments?
